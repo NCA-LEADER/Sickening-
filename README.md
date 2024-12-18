@@ -1,2 +1,0 @@
-# Sickening-
-Sick Act
